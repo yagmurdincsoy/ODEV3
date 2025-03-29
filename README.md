@@ -1,0 +1,2 @@
+# ODEV3
+3. HAFTA ÖDEVİ
